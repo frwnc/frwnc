@@ -5,7 +5,7 @@
 hii ! франс ' mw<br>any pronounce 𝜗ৎ she|his<br>    ────୨ৎ────<br>c + h , offtab many times < w2i<br>rus ' eng ' france
 
 <div align="center">
-  <img src="https://i.pinimg.com/originals/d2/cd/a0/d2cda01b152b9e7e29bfafc5d9081f6d.gif" width="500">
+  <img src="https://i.pinimg.com/originals/b7/a8/83/b7a88322646ef70decd98bb3b7071d76.gif" width="500">
 </div>
 
 ##  read it plws
@@ -15,6 +15,7 @@ hii ! франс ' mw<br>any pronounce 𝜗ৎ she|his<br>    ────୨ৎ
 тг - frwnc < не против знакомств 
 
 <div align="center">
-<img src="https://i.pinimg.com/736x/42/58/70/4258702087433503c7a342eb8dce4baa.jpg" width="500">
+<img src="https://i.pinimg.com/736x/5f/73/a1/5f73a13d8d3fb3ae4e367a3b4f54c801.jpg"/>
+" width="500">
 
 
