@@ -1,6 +1,6 @@
 # france
 ! ! !
-![Profile Views](https://komarev.com/ghpvc/?username=mwff1s&color=blue)
+![Profile Views](https://komarev.com/ghpvc/?username=mwff1s&color=purple)
 
 hii ! france ' mw<br>any pronounce 𝜗ৎ she|his<br>    ────୨ৎ────<br>c + h , offtab many times < w2i<br>rus ' eng ' france
 
